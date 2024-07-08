@@ -33,3 +33,5 @@ Key activities include researching and applying biochar for soil restoration at 
 Our impact is demonstrated through successfully restoring soil fertility and ecosystem health. We measure our success using the number of courses conducted, participants, and specific restoration work (e.g., biochar application, animal treatment).
 
 The war leaves behind a lot of destruction and harms people and the environment. Permaculture can heal both, and that is exactly what Permaculture in Ukraine is doing.
+
+To support the project - go https://giveth.io/project/regeneration-in-war
